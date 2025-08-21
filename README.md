@@ -1,4 +1,5 @@
-Career Prep High School
+**Career Prep High School**
+
 Career Prep High School offers tailored education for teens and adults! Fast-track diplomas, career certifications, job opportunities, flexible schedules, and all for FREE! Personalized support included!
 https://careerprepschool.org/
 
